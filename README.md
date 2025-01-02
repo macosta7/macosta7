@@ -3,6 +3,7 @@
 
 🎓 I’m graduated in TI from Etec <br />
 ❤️ I love making Databases <br />
+🧩 I'm interested in learning about VR <br />
 🗣️ I have an advanced English <br />
 🏊 I’m a triathlete <br />
 
