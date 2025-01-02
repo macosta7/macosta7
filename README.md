@@ -1,6 +1,8 @@
 <h1 align="center">Hi 👋, I'm Marcela</h1>
 <h3 align="center">I'm an Inteli Student</h3>
 
+<br />
+
 🎓 I’m graduated in TI from Etec <br />
 ❤️ I love making Databases <br />
 🧩 I'm interested in learning about VR <br />
