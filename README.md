@@ -7,7 +7,13 @@
 ❤️ I love making Databases <br />
 🧩 I'm interested in learning about VR <br />
 🗣️ I have an advanced English <br />
-🏊 I’m a triathlete <br />
+
+
+
+<h3 align="left">Curiosity🤗</h3>
+I was a swimming federation for 5 years and I've already participated in important national competitions.🏅 <br/>
+Nowadays I'm a triathlete and my dream is to become an IRONMAN🏊🚴‍♀️🏃‍♀️
+
 
 <br />
 
