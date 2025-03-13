@@ -8,7 +8,6 @@
 🧩 I'm interested in learning about VR <br />
 🗣️ I have an advanced English <br />
 
-
 <h3 align="left">Curiosity🤗</h3>
 I was federated in swimming for 5 years and I've already participated in important national competitions.🏅 <br/>
 Nowadays I'm a triathlete and my dream is to become an IRONMAN🏊🚴‍♀️🏃‍♀️
